@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 📧 Email: kintanpitaloka529@gmail.com
 - 🎨 Portfolio: https://github.com/kintan-pitaloka
 - 🌱 Pinterest: https://pin.it/5dqDoM4
-- 💼 LinkedIn: https://linkedin.com/in/kintan-pitaloka 
+- 💼 LinkedIn: https://linkedin.com/in/kintanpitaloka 
