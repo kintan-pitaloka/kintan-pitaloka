@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - ⚡ Interest : Data Science | Healthy Lifestyle | Home workout | Editing | Illustration | Typography | Photography
 - 📧 Email: kintanpitaloka529@gmail.com
 - 🎨 Portfolio: https://github.com/kintan-pitaloka
-- 🌱 Pinterest: https://pin.it/5dqDoM4
+- 🌱 Pinterest: https://id.pinterest.com/kintanpitalokaaa
 - 💼 LinkedIn: https://linkedin.com/in/kintanpitaloka 
