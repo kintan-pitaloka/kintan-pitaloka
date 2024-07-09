@@ -5,7 +5,7 @@
 Here are some ideas to get you started:
 -->
 
-- 🔥 Statistics Student at Indonesia Open University
+- 🔥 Statistics 
 - ✨ Living | Coding | Smiling | Shining
 - ⚡ Interest : Data Science | Healthy Lifestyle | Home workout | Editing | Illustration | Typography | Photography
 - 📧 Email: kintanpitaloka529@gmail.com
