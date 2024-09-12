@@ -6,7 +6,7 @@ Here are some ideas to get you started:
 -->
 
 - 🔥 Statistics 
-- ✨ Living | Coding | Smiling | Shining
+- ✨ Living | Loving | Coding | Smiling | Growing | Shining
 - ⚡ Interest : Data Science | Healthy Lifestyle | Home workout | Editing | Illustration | Typography | Photography
 - 📧 Email: kintanpitaloka529@gmail.com
 - 🎨 Portfolio: https://github.com/kintan-pitaloka
