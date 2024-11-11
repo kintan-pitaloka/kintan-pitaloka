@@ -5,9 +5,8 @@
 Here are some ideas to get you started:
 -->
 
-- 🔥 Statistics 
+- 🔥 Data Scientist Devotee | Stat Student | Digital Artist 
 - ✨ Living | Loving | Coding | Smiling | Growing | Shining
-- ⚡ Interest : Data Science | Healthy Lifestyle | Home workout | Editing | Illustration | Typography | Photography
 - 📧 Email: kintanpitaloka529@gmail.com
 - 🎨 Portfolio: https://github.com/kintan-pitaloka
 - 🌱 Pinterest: https://id.pinterest.com/kintanpitalokaaa
