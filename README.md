@@ -5,9 +5,10 @@
 Here are some ideas to get you started:
 -->
 
-- 🔥 Data Scientist Devotee | Stat Student | Digital Artist 
+- 🔥 Data Scientist Devotee | Stats Student | Digital Artist 
 - ✨ Living | Loving | Coding | Smiling | Growing | Shining
 - 📧 Email: kintanpitaloka529@gmail.com
 - 🎨 Portfolio: https://github.com/kintan-pitaloka
 - 🌱 Pinterest: https://id.pinterest.com/kintanpitalokaaa
-- 💼 LinkedIn: https://linkedin.com/in/kintanpitaloka 
+- 💼 LinkedIn: https://linkedin.com/in/kintanpitaloka
+
