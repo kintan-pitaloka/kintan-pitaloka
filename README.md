@@ -1,4 +1,4 @@
-### Holla Everyone, I'm Kintan Pitaloka Winasih!👋
+### Holla Everyone, I'm Kintan Pitaloka W 👋
 
 <!--
 **kintan-pitaloka/kintan-pitaloka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
